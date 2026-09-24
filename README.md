@@ -1,1 +1,1 @@
-![CRUSH IT](https://ipfs.io/ipfs/QmSHFVMmZqPnRCpisw2n6DNsccQqNfwYUUGN54Dk9riiNn)
+![CRUSH IT](https://bafybeib2r7acl534rpcypk42vmv3tmhlbkubljfzgljop53wftkcj7co5m.ipfs.inbrowser.link/)
